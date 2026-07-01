@@ -48,7 +48,7 @@ I am currently building my skills through university projects and personal learn
 
 ## Off the Clock
 
-Gym, music, reading.
+Gym, music and reading.
 
 
 
